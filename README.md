@@ -7,7 +7,7 @@
 
 **Varför jag sökt till webbutveckling:** Webben är något som ständigt utvecklas och jag vill vara med när/där det sker.
 
-**Här är en lista på några andra anlednigarna:**
+**Här är en lista på några andra anledningarna:**
 
 - Hade ett tungt fysiskt arbete
 - Behöver mer mental utmaning
