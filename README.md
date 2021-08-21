@@ -31,3 +31,9 @@ Vill ni ha en ranking av anledningarna så kommer de här:
 
 **Favoritserie:** Jag vet inte om denna kvalificerar sig som en serie men bilprogrammet "Top Gear" är min absoluta favorit. De tidiga säsongerna av Game of thrones var bra. Fastnade ett par säsonger av The walking dead.
 
+[Förmodligen världens mest eftertraktade arbetsgivare](https://google.com)
+
+[Min LinkedIN](https://www.linkedin.com/in/christoffer-knaving-77366a21a/)
+
+
+
