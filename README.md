@@ -37,3 +37,7 @@ Sugen på att testa? Klicka på länken: [World of tanks](https://worldoftanks.e
 **Favoritserie:** Jag vet inte om denna kvalificerar sig som en serie men bilprogrammet "Top Gear" är min absoluta favorit. De tidiga säsongerna av Game of thrones var bra. Fastnade ett par säsonger av The walking dead.
 
 [Min LinkedIN](https://www.linkedin.com/in/christoffer-knaving-77366a21a/)
+
+
+[![IMAGE ALT TEXT HERE](https://surfalugnt.se/wp-content/uploads/YouTube-logo-full_color.png)](http://www.youtube.com/watch?v=e23pW_0BPo0)
+
