@@ -14,3 +14,13 @@
 - Personlig utveckling
 
 **Erfarenhet av teknik:** Det beror lite på vad man menar för typ av erfarenhet. Jag älskar teknik men kan inte förklara **"HUR"** den funkar. 
+
+**Vad har jag för mål med utbildningen:** Jag vill efter utbildningen ha en bred bas att stå på för att eventuellt kunna rikta in mig på något mer specifikt. Vill även knyta kontakter med människor redan i branschen.
+
+**Mina intressen:** Det finns flera. Tar man bvort det mest självklara (familjen) så är det fotboll (att titta på), datorspel, husbyggen. 
+
+**Vad gör du en ledig dag:** Spenderar tid med familjen större delen av dagen. På kvällarna kopplar jag gärna av med lite datorspel med kompisar.
+
+**Favoritspel:** World of tanks
+
+**Favoritserie:** Jag vet inte om denna kvalificerar sig som en serie men bilprogrammet "Top Gear" är min absoluta favorit. De tidiga säsongerna av Game of thrones var bra. Fastnade ett par säsonger av The walking dead.
