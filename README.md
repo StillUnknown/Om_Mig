@@ -13,6 +13,12 @@
 - Behöver mer mental utmaning
 - Personlig utveckling
 
+Vill ni ha en ranking av anledningarna så kommer de här:
+
+1. Personlig utveckling
+2. Behöver mer mental utveckling
+3. Hade ett tungt fysiskt arbete
+
 **Erfarenhet av teknik:** Det beror lite på vad man menar för typ av erfarenhet. Jag älskar teknik men kan inte förklara **"HUR"** den funkar. 
 
 **Vad har jag för mål med utbildningen:** Jag vill efter utbildningen ha en bred bas att stå på för att eventuellt kunna rikta in mig på något mer specifikt. Vill även knyta kontakter med människor redan i branschen.
