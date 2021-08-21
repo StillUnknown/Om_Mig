@@ -30,3 +30,4 @@ Vill ni ha en ranking av anledningarna så kommer de här:
 **Favoritspel:** World of tanks
 
 **Favoritserie:** Jag vet inte om denna kvalificerar sig som en serie men bilprogrammet "Top Gear" är min absoluta favorit. De tidiga säsongerna av Game of thrones var bra. Fastnade ett par säsonger av The walking dead.
+
