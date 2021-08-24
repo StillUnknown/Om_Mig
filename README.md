@@ -14,8 +14,7 @@ Jag älskar teknik, har alltid gjort. När jag växte upp och mamma köpte någo
 
 ## Vad har jag för mål med utbildningen
 
-När utbildningen är slut vill jag känna att jag tog tillvara på varje sekund. Att jag ställde alla frågor jag ville ställa. Att jag inte tog den enkla vägen när vi blev tilldelade hemuppgifter. Att kunna ställa frågan till mig själv, gjorde du verkligen ditt bästa? Och kunna svara ja.  
-Att få ett jobb efter avslutade studier relevant för utbildningen.
+När utbildningen är slut vill jag känna att jag tog tillvara på varje sekund. Att jag ställde alla frågor jag ville ställa. Att jag inte tog den enkla vägen när vi blev tilldelade hemuppgifter. Att få ett jobb efter avslutade studier relevant för utbildningen.
 
 ## Mina intressen
 
